@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **praveenrajb2w@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1vy1xgFyWN-hwxqv7x9hLx0kKS9EJDPRA](https://drive.google.com/drive/folders/1vy1xgFyWN-hwxqv7x9hLx0kKS9EJDPRA)
+- 📄 Know about my experiences [https://drive.google.com/drive/folders/1vy1xgFyWN-hwxqv7x9hLx0kKS9EJDPRA](https://drive.google.com/file/d/1NGv201d4du8eS6gGCFfSpWaki4ML2Iq7/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
